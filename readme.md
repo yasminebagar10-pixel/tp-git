@@ -1,4 +1,4 @@
-Hey, girl
+Hey, girl BY YASMINE
 Is he everything you wanted in a man?
 You know I gave you the world
 You had me in the palm of your hand
