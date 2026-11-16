@@ -1,4 +1,8 @@
+<<<<<<< HEAD
 Hey, girl BY YASMINE
+=======
+Hey, girl JUSTIN TEMBERLAKE
+>>>>>>> branche2
 Is he everything you wanted in a man?
 You know I gave you the world
 You had me in the palm of your hand
